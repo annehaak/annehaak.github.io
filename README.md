@@ -9,10 +9,8 @@ Already the Italian Renaissance Michelangelo Buonarroti was seen as the protagon
 His artwork was referenced countless times, to the extent that in the present day and age most people are familiar with his oeuvre, sometimes without even knowing the artist's actual name.
 
 So Michelangelo's artwork has become part of our Western _'icons'_, our _'cultural subconscience'_, but who was the man behind the work?
+Have a look at the rest of this website to find out!
 
-### Have a look at the rest of this website to find out!
 
-
-### Suggestions or Contact
-
+## Suggestions or Contact
 Further suggestions for this website? Or a Michelangelo addict who wants to share their passion? [E-mail me](anne.haak@hotmail.com) and let's get in touch!
