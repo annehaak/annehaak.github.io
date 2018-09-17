@@ -12,7 +12,7 @@ So Michelangelo's artwork has become part of our Western _'icons'_, our _'cultur
 Have a look at the rest of this website to find out!
 
 
-#_Sonetto 5_ and the Sistine Chapel
+# _Sonetto 5_ and the Sistine Chapel
 
 
 Italian original | English translation
