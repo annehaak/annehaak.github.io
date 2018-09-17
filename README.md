@@ -1,12 +1,7 @@
-<!DOCTYPE html>
-<html>
 <head> <img src="https://raw.githubusercontent.com/annehaak/annehaak.github.io/master/%22Oh%20wonder%20of%20nature%2C%20Angel%20elect%20%5B...%5D%20you%20are%20perfect%20in%20both%20wisdom%20and%20goodness.%22.png" />
   </head>
 
 # **Michelangelo Buonarroti, _'Il Divino'_**
-
-"Oh wonder of nature, Angel elect [...] you are perfect in both wisdom and goodness."
-- Agnolo Bronzino
 
 ### Michelangelo Buonarroti (March 6, 1475 - February 18, 1564) is considered the most famous artist of the Italian Renaissance. Some even think it is safe to say that he is the greatest artist to have ever lived, "exerting an unparalleled influence on the development of Western art".
 ### Already the Italian Renaissance Michelangelo Buonarroti was seen as the protagonist of his time, enjoying a celebrity status.
