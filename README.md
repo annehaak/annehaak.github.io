@@ -8,7 +8,9 @@
 Already the Italian Renaissance Michelangelo Buonarroti was seen as the protagonist of his time, enjoying a celebrity status.
 His artwork was referenced countless times, to the extent that in the present day and age most people are familiar with his oeuvre, sometimes without even knowing the artist's actual name.
 
-So Michelangelo's artwork has become part of our Western _'icons'_, our _'cultural subconscience'_, but who was the man behind the work? Did he like his own art as much as we do?
+So Michelangelo's artwork has become part of our Western _'icons'_, our _'cultural subconscience'_, but who was the man behind the work? 
+Did he like his own art as much as we do?
+
 Have a look at the rest of this website to find out!
 
 
