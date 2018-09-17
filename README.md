@@ -43,4 +43,5 @@ non sendo in loco bon, né io pittore. | I’ll land in no good place, and I’m
 
 ## Suggestions or Contact
 Further suggestions for this website? Or a Michelangelo addict who wants to share their passion? 
+
 [E-mail me](anne.haak@hotmail.com) and let's get in touch!
