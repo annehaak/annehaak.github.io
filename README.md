@@ -1,5 +1,6 @@
-<head> <img src="https://raw.githubusercontent.com/annehaak/annehaak.github.io/master/%22Oh%20wonder%20of%20nature%2C%20Angel%20elect%20%5B...%5D%20you%20are%20perfect%20in%20both%20wisdom%20and%20goodness.%22.png" />
-  </head>
+<head> 
+          <img src="https://raw.githubusercontent.com/annehaak/annehaak.github.io/master/%22Oh%20wonder%20of%20nature%2C%20Angel%20elect%20%5B...%5D%20you%20are%20perfect%20in%20both%20wisdom%20and%20goodness.%22.png" />
+          </head>
 
 # **Michelangelo Buonarroti, _'Il Divino'_**
 
